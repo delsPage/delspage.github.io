@@ -1,1 +1,0 @@
-# delsPage.github.io
